@@ -1,4 +1,4 @@
-# Harmoni 🌍
+# Harmoni☘️
 
 **Harmoni** is a compassionate NGO dedicated to creating harmony among people, nature, and communities through impactful initiatives and unwavering care.
 
